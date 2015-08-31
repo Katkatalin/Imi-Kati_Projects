@@ -1,2 +1,2 @@
 # Imi-Kati_Projects
-Izz lesznek a közös projectjeink
+Itt lesznek a közös projectjeink
